@@ -39,3 +39,4 @@ friend's boutique.
 ## Get in touch
 
 - LinkedIn: [linkedin.com/in/afaq-ch-931b4331a](https://www.linkedin.com/in/afaq-ch-931b4331a)
+- Email: [afaqchaudhary45@gmail.com](mailto:afaqchaudhary45@gmail.com)
